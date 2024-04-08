@@ -6,8 +6,7 @@ sw프로세서를 좋아합니다
 영남대학교 학생
 ##links
 e-mail-lgsbsw@naver.com
-##etc
-나는 ryu seung hyun을 증오하지만 좋아합니다(?)
+
 
 
 
